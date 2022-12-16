@@ -1,6 +1,6 @@
 # Bumpkin π
 
-## Coding and such
+## Coding and suck
 
 
 #### This one is pretty good tbf, the others kinda such.
